@@ -1,0 +1,2 @@
+# EditRush-IA-Global
+IA APRENDE EDICION CLIPS
